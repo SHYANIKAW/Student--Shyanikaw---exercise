@@ -1,2 +1,1 @@
-# Student--Shyanikaw---exercise
-Student- Shyanikaw - exercise 4  - Week 4
+This exercise reflects on listening habits that improve learning and relationships. I have highlighted eye contact, nonverbal engagement, and note-taking as effective strategies. The main challenge is asking clarifying questions, which we want to improve to avoid misunderstandings, show curiosity, and build stronger connections. Overall, this depicts that better listening will help you succeed academically and personally.
